@@ -1,5 +1,5 @@
 Hi 👋, I'm kassas kaoutar
-
+computer science engineer &full stack developer
 
 mes competences:
 
